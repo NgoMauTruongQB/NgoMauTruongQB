@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Ngo Mau Truong
-- 👀 I’m student at Da Nang University - University of science and technology.
+- 👀 I’m student at Da Nang University - University of Science and Technology.
 - 📫 Contact me: Truongngo2707@gmail.com or 0921233432
 - 2nd year students are on their way to conquer IT.
